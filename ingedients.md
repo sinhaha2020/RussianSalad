@@ -1,0 +1,1 @@
+ingredients: boiled macarroni,sweet corn,carrot,broccoli,pineapple chunks,hungcurd,mayo,black pepper powder,origano,salt,sugar
